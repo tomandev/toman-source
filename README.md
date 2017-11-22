@@ -1,0 +1,1 @@
+TOMAN is a cryptocurrency by Toman BV
